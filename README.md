@@ -1,1 +1,1 @@
-https://github.com/AvanMin/zakrivayuschiy-teg-ad
+https://github.com/SAYONARY/zakrivayuschiy-teg-ad
